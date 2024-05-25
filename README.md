@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **EVERYTHING**
 
-- 💬 Ask me about **Victoria's secret**
+- 💬 Ask me about **anything!**
 
 - 📫 How to reach me **pindano@proton.me**
 
